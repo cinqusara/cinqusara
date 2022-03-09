@@ -1,5 +1,5 @@
 - 🌼 Hi, I’m @cinqusara
-- 🪴 I’m currently studying at the university of milan, department of computer science
+- 🪴 I’m currently studying at the university of Milan, department of computer science
 - ✉️ How to reach me:
   - instagram: @cinqusara
   - email: sara.cinquini@studenti.unimi.it or srcinquini@gmail.com
